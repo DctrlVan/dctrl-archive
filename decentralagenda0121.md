@@ -7,4 +7,3 @@
 - Forum? Google Group for informal Messages
 - Saturday Night event?
 - Naked Yoga 8am - 12pm on a sat or sun
-- 
