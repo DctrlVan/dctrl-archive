@@ -3,6 +3,9 @@
   - Should each presentation promote the Membership program before it starts?
 - Door RFID
 - Pricing
+- Naked Yoga:
+  - We have decided that naked yogo can happen Sat and Sun mornings between 6-10am for a regular membership and a fixed percentage of all donations. 
+
 - Get Members to Join Chat - Is Dechat ready?
 - Forum? Google Group for informal Messages
 - Saturday Night event?
